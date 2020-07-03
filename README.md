@@ -1,1 +1,0 @@
-# hoasunnyukichtranglada.github.io
